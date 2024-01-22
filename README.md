@@ -7,4 +7,4 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/kalafutova/](https://www.linkedin.com/in/kalafutova/)
 
-- - ⚡ Fun fact **'Detroit: Become Human' and 'The Last of Us' holding a special place in my gaming heart! 🎮**
+- ⚡ Fun fact **'Detroit: Become Human'** and **'The Last of Us'** holding a special place in my gaming heart! 🎮
